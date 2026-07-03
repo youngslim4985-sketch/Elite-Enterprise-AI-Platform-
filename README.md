@@ -1,4 +1,4 @@
-Elite Enterprise AI Platform™
+Elite Enterprise AI Platform™ 
 
 Enterprise AI • Intelligent Automation • Business Operations
 
